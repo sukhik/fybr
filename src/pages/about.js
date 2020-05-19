@@ -26,10 +26,7 @@ const About = ({ data }) => {
           installation and revolves mostly around me.
           <br />
           <br />
-           Blogging and budgeting aren't the same but I decided to keep this
-           record to get out some energy and look for patterns
-           that have helped me get to where I am.
-           I hope this will be a good resource to anyone out there. 
+          I hope this will be a good resource to anyone out there. 
         </TextBody>
         <Button href="mailto:sukhikgr@gmail.com">Get in touch</Button>
       </Layout>
