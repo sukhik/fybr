@@ -1,6 +1,6 @@
 ---
 title: '(The responsibility of writing about) Money'
-date: '2020-05-06'
+date: '2020-03-06'
 ---
 
 ![photo](post1photo1.jpg)
