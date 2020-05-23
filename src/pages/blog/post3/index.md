@@ -1,5 +1,5 @@
 ---
-title: 'Having it all together...in other ways'
+title: 'Confession: I don't have a job'
 date: '2020-03-21'
 ---
 
