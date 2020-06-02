@@ -1,5 +1,5 @@
 ---
-title: 'I do not have a job'
+title: 'I Do Not Have A job'
 date: '2020-04-06'
 ---
 
