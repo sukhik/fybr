@@ -1,6 +1,6 @@
 ---
-title: '(The responsibility of writing about) Money'
-date: '2020-03-06'
+title: 'Confession, I don't have a job'
+date: '2020-04-06'
 ---
 
 ![photo](post2photo1.jpg)
