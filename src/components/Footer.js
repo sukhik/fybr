@@ -20,7 +20,7 @@ export const Footer = () => {
   return (
     <Container>
       <ButtonLink
-        href="https://aur.netlify.app/"
+        href="https://sukhikgrewal.netlify.app/"
         target="_blank"
         rel="noopener noreferrer"
       >
