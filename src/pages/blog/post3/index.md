@@ -6,3 +6,8 @@ date: '2020-05-19'
 ![photo](post3photo1.png)
 
 The work here
+
+
+![photo](post3photo2.pdf)
+
+More body here
