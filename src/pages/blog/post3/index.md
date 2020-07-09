@@ -3,6 +3,6 @@ title: 'Rates!'
 date: '2020-05-19'
 ---
 
-// <!-- ![photo](post1photo1.jpg) -->
+![photo](post3photo1.png)
 
 The work here
