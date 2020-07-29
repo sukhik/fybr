@@ -1,5 +1,5 @@
 ---
-title: 'CD Rates and a glimpse at my CD Ladder, and how much I make in interest'
+title: 'CD Rates, a glimpse at my CD Ladder, and how much I make in interest'
 date: '2020-05-19'
 ---
 
