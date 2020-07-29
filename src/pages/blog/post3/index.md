@@ -9,7 +9,7 @@ The rates have really dropped but this is where the market is at. I was able to 
 
 *In an upcoming post, I am going to write about my credit, how I use it, about which cards I'm currently into, what's serving me. Yes, I have spreadsheets on all of this, and yeah I love it.
 
-Here is a glimpse of my accounts at Citizen's Access. You can see the 4yr and the 5yr rates were 3.05% and 3.10% at the time of opening. You can see the date these are released back to the wild, annotated "maturity date." After that it will be up to me to find other investments, or who knows maybe I will buy a multi-unit place or condos or something. This is a really special time because I will probably never have sleeping, dormant money like this ever again. I think born here, is an idea for another post: where am I going to be on 1/27/2021? 7/30/2022? 10/01/2023? What will my purchasing power be?
+Here is a glimpse of my accounts at Citizen's Access. You can see the 4yr and the 5yr rates were 3.05% and 3.10% at the time of opening. You can see the date these are released back to the wild, annotated "maturity date." After that it will be up to me to find other investments, or who knows maybe I will buy a multi-unit place or condos or something. This is a really special time because I will probably never have sleeping, dormant money like this ever again. I think born here is an idea for another post: where am I going to be on 1/27/2021? 7/30/2022? 10/01/2023? What am I going to do with the money? What will my purchasing power be?
 
 ![photo](post3photo2.png)
 
