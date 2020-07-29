@@ -1,6 +1,6 @@
 ---
-title: 'Paring Back. Why not having shit is the new having shit'
-date: '2020-05-19'
+title: 'Paring Back. Why not having any/new shit is the new having shit'
+date: '2020-06-13'
 ---
 
 How hard is it to not shop?
