@@ -6,7 +6,7 @@ What is the meaning of life? Who am I?
 
 If you look across the interfaces spanning all my banks, every spreadsheet I've developed over the last year or so, each line of all my e-statements...across my checking, savings, brokerage accounts, credit cards...it's quite impressive...it's all deposits. It's a weird feeling to see that. My totals are beautiful, my totals are my friends. I love you, pile. Honestly, it's a joke. I wish I could spend you, pile, I protest you. What am I not buying? What am I missing out on? I purchase very little gasoline and groceries now. I eat next to nothing.* Hardly drive anywhere.** Previously, these were my only spending categories. It's bizarre how little I need, how little my need is to consume.*** It's a trade-off...it's the only way I compete. 
 
-* Another post coming up will detail what I eat and how much I spend on food.
+*Another post coming up will detail what I eat and how much I spend on food.
 ** What do you do all day then...? Up next: A day in the life of AUR.
 *** So many post needs and ideas. I want to actually make a money diaries entry. That's where this blog came from, the highly controversial, controversial as time itself, Refinery29 Money Diaries. The controversy which needs no introduction. Okay, I'm done. So, do you mind? Can we get a diary entry going soon, please.
 
