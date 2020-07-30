@@ -5,4 +5,3 @@ date: '2020-07-30'
 
 ![photo](post9photo1.png)
 
-![photo](post9photo2.png)
