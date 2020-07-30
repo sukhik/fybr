@@ -1,8 +1,23 @@
 ---
-title: 'Paring Back. Why not having shit is the new having shit'
+title: 'Is Paring Back is the New Having Shit?'
 date: '2020-06-13'
 ---
+What is the meaning of life? Who am I? 
 
-Resist! You don't really need that.
+If you look across the interfaces spanning all my banks, every spreadsheet I've developed over the last year or so, each line of all my e-statements...across my checking, savings, brokerage accounts, credit cards...it's quite impressive...it's all deposits. It's a weird feeling to see that. My totals are beautiful, my totals are my friends. I love you, pile. Honestly, it's a joke. I wish I could spend you, pile, I protest you. What am I not buying? What am I missing out on? I purchase very little gasoline and groceries now. I eat next to nothing.* Hardly drive anywhere.** Previously, these were my only spending categories. It's bizarre how little I need, how little my need is to consume.*** It's a trade-off...it's the only way I compete. 
 
-<--! // ![photo](post4photo1.png) -->
+* Another post coming up will detail what I eat and how much I spend on food.
+** What do you do all day then...? Up next: A day in the life of AUR.
+*** So many post needs and ideas. I want to actually make a money diaries entry. That's where this blog came from, the highly controversial, controversial as time itself, Refinery29 Money Diaries. The controversy which needs no introduction. Okay, I'm done. So, do you mind? Can we get a diary entry going soon, please.
+
+Over the years, I have learned how to be less wasteful and less gruesome as a human being. I'm just a little unsure where these changes came from and if they represent who I really am. What do my spending habits say about me? I balk at the aesthetic of minimalism (am I a maximalist? TBD) though my mind begs and enjoys the fruits of nothingness and empty space. I find the rhetoric of being who you are or your saving and spending habits as a function of how you grew up, in which conditions or social class, or what your parents did or didn't teach you overused, reductive and unimportant. I don't accept it as an answer to my questions. In 2020, are we our image? Is my meaning of life going to depend on the image I purchase? This is how I feel based on my observations of how people act, which I feel is related to how and why they shop and consume. Do they do it for themselves? Then I persist, WHY!? What are you possibly getting? What am I missing out on? Are they ignorant? Why do people act the way they do? And why me, why do I care? 
+
+There is so much wealth in the world. As a society, why aren't we happy and free? Is it only me, depressed?! What am I saving for? Who am I serving by my choices? Is it ever going to be me? Will I be served by my choices one day? What is the relationship of happiness to money? Security? How are we not guaranteed security? What about the sick? Disabled? The people who are suffering and hurting? Fucking homeless!
+
+How do I take care of myself when I think like this? Drop <a href=https://nargis.netlify.app>nargis</a>. It's a whole different world there. I tried to address the responsibility of writing about money before but it is extremely difficult and I suspected it would maybe come out over time. I'm not a great, complete writer or thinker. But I do trust things will get clearer as I keep trying.
+
+I wonder if I have been limited and forced to be the way I am, if I didn't have any other choices, due to my own sickness, suffering, and disability. It's very, very complicated. I will break it down and unpack it in later posts, I am sure. Can I let it go? Drop <a href=https://moodboards.netlify.app>2 yr plan</a> where I cleanse my soul. How did my choices and circumstances lead me here? Why haven't I been spending? Why am I not buying stuff? What are my beliefs? What philosophies back up my beliefs?
+
+So the world is really f***** up and I am not into how the world is so I pare back. I guess I'm a little conscious. I don't have cheap jewelry or much jewelry, ready to wear clothes and fast fashion. Nothing made in PRC, China. I began boycotting Chinese goods more than five years ago. I think it's sick to support child labor practices in any form, or trade with countries neglecting responsibility on the global stage for the treatment of their people and women and children. I stopped getting my nails done many years ago. It's wrong seriously, how are you going to spend over $100 on your nails. I don't shop every day, I can't shop every day. "I can't shop...won't shop. Never shop." Even if shopping ameliorated all my griefs and answered all my questions, I still wouldn't. Because guess what: I have a bunch of cash and investments. 
+
+So there you go. Not having shit is the new having shit. If you have a lot of shit, do you ask yourself why? If you find yourself needing more shit, do you ask yourself why? I want to be a better person with a defensible outlook and worldview. I save so I can do something with it, don't I? I'm writing so I can make meaning of it, aren't I? Won't these habits help me later? I'm waiting.
