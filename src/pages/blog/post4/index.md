@@ -1,6 +1,6 @@
 ---
 title: 'Is Paring Back the New Having Shit?'
-date: '2020-06-13'
+date: '2020-05-13'
 ---
 What is the meaning of life? Who am I? 
 
