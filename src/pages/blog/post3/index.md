@@ -1,6 +1,6 @@
 ---
 title: 'CD Rates, a glimpse at my CD Ladder, and how much I make in interest'
-date: '2020-05-19'
+date: '2020-04-11'
 ---
 
 The rates have really dropped but this is where the market is at. 
