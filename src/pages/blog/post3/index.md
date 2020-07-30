@@ -13,7 +13,7 @@ I am making a couple thousand in interest but I would like these safer investmen
 
 *In an upcoming post, I am going to write about my credit, how I use it, about which cards I'm currently into, what's serving me. Yes, I have spreadsheets on all of this, and yeah I love it.
 
-Here is a glimpse of my accounts at Citizens Access. You can see the 4yr and the 5yr rates were 3.05% and 3.10% at the time of opening. You can see the date these will be released back into the wild, where it says "maturity date." After that it will be up to me to find other investments. Who knows maybe I will buy a multi-unit place or condos or something. This is a special time because I will probably never have sleeping, dormant money like this ever again. This may be the only time where I am not working full-time, too, actively contributing to my investments or earning.
+Here is a glimpse of my accounts at Citizens Access. You can see the 4yr and the 5yr rates were 3.05% and 3.10% at the time of opening. You can see the date these will be released back into the wild, where it says "maturity date." After that it will be up to me to find other investments. Who knows, maybe I will buy a multi-unit place or condos or something. This is a special time because I will probably never have sleeping, dormant money like this ever again. This may be the only time where I am not working full-time, too, actively contributing to my investments or earning.
 
 Born here is an idea for another post: where am I going to be on 7/30/2022? 10/01/2023? 1/27/2021? What am I going to do with the money? What does the future hold? Where do I want to be? How much can really change?
 
