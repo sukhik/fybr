@@ -45,9 +45,9 @@ Health Insurance: I have private insurance but I don't pay for it. $0
 
 Car Insurance: It's lumped in with my parents who cover my siblings and I. $0
 
-Gym: $0. If I want to use machines, I use a key my brother gave me to the fitness center of his old apartments. He no longer lives there but the key still works...it's not electric. It's 10 minutes away by car so I never go there. My boyfriend's little sister has weights in the garage where we live. She lives part of the year in the US and part of the year in Mexico. When she leaves, this week actually, I'll probably start using it. Otherwise I work out outside or indoors on my opalescent Manduka PROlite purchased back in 2016. I started doing free YouTube workouts.
+Gym: $0. If I want to use machines, I use a key my brother gave me to the fitness center of his old apartments. He no longer lives there but the key still works...it's not electric. It's 10 minutes away by car so I never go there. My boyfriend's little sister has weights in the garage where we live. She lives part of the year in the US and part of the year in Mexico. When she leaves, this week actually, I'll probably start using them. Otherwise I work out outside or indoors on my opalescent Manduka PROlite purchased back in 2016. I actually own my own weights, I believe they belong to my OTHER brother, but they are at my parents house. I started doing free YouTube workouts...Really loving YouTube, except for all the bad parts about it..$0
 
-Retirement: I'm opening a Roth IRA this week but I haven't made any contributions to it.
+Retirement: I'm opening a Roth IRA this week but I haven't made any contributions to it. $0
 
 
 Day One.
