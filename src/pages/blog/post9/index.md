@@ -30,15 +30,15 @@ Monthly Expenses
 
 Rent: I don't pay rent, but I work on the property where I live, where I did a landscape redesign and add value by working on the garden, xeriscaping, cultivating fruit trees and flowers, and developing the property as much as I can. $0
 
-Utilities: I don't pay utilities, but I implement strategies to save on utilities and I'm pretty dedicated to being energy-efficient and conservative. Part of my plan includes working with the city and with the utilities company to enroll into programs my household is eligible for. If I can reduce the bill for forever, that's equivalent to paying a portion of the bill, isn't it? $0
+Utilities: I don't pay utilities. I am trying to permanently reduce the bill for posterity. That's equivalent to paying a portion of the bill, isn't it? $0
 
 Internet: I don't pay internet. $0
 
-Savings: For the last few months, I've been saving about $4k a month. Normally, I don't. $0
+Savings: For the last few months, I've been saving about $2k a month. Normally, I don't. $0
 
 Mobile: I don't pay for my cell phone but my sister asked me to contribute. About a week ago, I told her I would chip in but I haven't paid anything yet. $0
 
-Streaming Services: Currently using a free trial of HBO which I'm cancelling before the first bill. $0, share Netflix with the homies and get Kanopy through the public library...I have a Spotify Premium through a family plan...unsure who pays it. I don't have Amazon or Prime...I'm very anti-Amazon, I don't use it at all and never have. $0
+Streaming Services: Currently using a free trial of HBO which I won't use past the first bill. I share Netflix with the homies and get Kanopy through the public library. I have a Spotify Premium through a family plan. I don't have Amazon or Prime...I'm very anti-Amazon, I don't use it at all and never have. $0 O WAIT. I got charged by CBS to watch the NWSL Challenge Cup over july. I did pay $10 for it but it's canceled now. Literally right now, I just cancelled it.
 
 Student Loans: I had less than $20K in students loans which were discharged due to permanent disability. $0
 
@@ -65,6 +65,10 @@ Noon, 12pm - I woke up at 11 something but I made pourover and started my day a 
 
 5pm - Two weeks ago, I made use of Digital Wellbeing Beta on my Google Pixel 2 XL, a phone I've had since 2016 but broke a couple days ago. Just the screen. In ten million places. Digital Wellbeing allowed me to set timers on all my apps and basically I don't waste time anymore on my phone on social media or really, even anything else. My phone is disturbing me less. I break at 5, meeting up with my boyfriend's mom and sister, for dinner. When they're in the country, we do this every day. They leave tomorrow, so who knows how we're going to feed ourselves.
 
-8pm - Practice time. See <a href=https://sclub.netlify.app>my site</a>! I train soccer, so I break again from what I'm doing to meet up with my player who lives down the street. We walk to the park together and play soccer for an hour. I get home around 
+8pm - Practice time. See <a href=https://sclub.netlify.app>my site</a>! I train soccer, so I break again from what I'm doing to meet up with my player who lives down the street. We walk to the park together and play soccer for an hour and 30 minutes. I get home before 10.
+
+10:30pm - Sit down to chill. Hang with family. Ruminate and poring design
+
+
 
 Daily Total: An estimated $1,000 to replace my phone :(
