@@ -8,16 +8,14 @@ Finally.
 ![photo](post9photo1.png)
 
 Occupation: Uhhhhh 
-
 Industry: uhhhhh
-
 Age: 29.5
 
 Location: Austin
 
 Salary: Ummm
 
-Net Worth: Not sure, but I feel pretty worthless based on the above.
+Net Worth: Not sure, but I feel pretty worthless.
 
 Debt: I don't have debt but I may have medical bills in collection. No te preoccupes, my credit score is nearly perfect.
 
