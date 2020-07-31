@@ -30,7 +30,7 @@ Monthly Expenses
 
 Rent: I don't pay rent, but I work on the property where I live, where I did a landscape redesign and add value by working on the garden, xeriscaping, cultivating fruit trees and flowers, and developing the property as much as I can. $0
 
-Utilities: I don't pay utilities, but I implement strategies to save on utilities and I'm pretty dedicated to being energy-efficient and conservative. $0
+Utilities: I don't pay utilities, but I implement strategies to save on utilities and I'm pretty dedicated to being energy-efficient and conservative. Part of my plan includes working with the city and with the utlities company to enroll into programs my household is eligible for. I feel if I can reduce the bill for forever, that's equivalent to paying any portion of the bill. $0
 
 Internet: I don't pay internet. $0
 
@@ -50,6 +50,8 @@ Gym: $0. If I want to use machines, I use a key my brother gave me to the fitnes
 
 Retirement: I'm opening a Roth IRA this week but I haven't made any contributions to it. $0
 
+Construction: I'm making a back house on the property. It will cost $1000 per month for the next 4 months.
+
 
 Day One.
 
@@ -64,3 +66,5 @@ Noon, 12pm - I woke up at 11 something but I made pourover and started my day a 
 5pm - Two weeks ago, I made use of Digital Wellbeing Beta on my Google Pixel 2 XL, a phone I've had since 2016 but broke a couple days ago. Just the screen. In ten million places. Digital Wellbeing allowed me to set timers on all my apps and basically I don't waste time anymore on my phone on social media or really, even anything else. My phone is disturbing me less. I break at 5, meeting up with my boyfriend's mom and sister, for dinner. When they're in the country, we do this every day. They leave tomorrow, so who knows how we're going to feed ourselves.
 
 8pm - Practice time. See <a href=https://sclub.netlify.app>my site</a>! I train soccer, so I break again from what I'm doing to meet up with my player who lives down the street. We walk to the park together and play soccer for an hour. I get home around 
+
+Daily Total: An estimated $1,000 to replace my phone :(
