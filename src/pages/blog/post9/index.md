@@ -31,7 +31,7 @@ Utilities: I don't pay utilities, but I implement strategies to save on utilitie
 
 Internet: I don't pay internet. $0
 
-Savings: For the last few months, I've been saving about $4k a month. Normally, I don't. 
+Savings: For the last few months, I've been saving about $4k a month. Normally, I don't. $0
 
 Mobile: I don't pay for my cell phone but my sister asked me to contribute. About a week ago, I told her I would chip in but I haven't paid anything yet. $0
 
