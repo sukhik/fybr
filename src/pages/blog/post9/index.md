@@ -1,5 +1,5 @@
 ---
-title: 'Money Diaries: A Summer week in Austin on a Salary I Pay Myself'
+title: 'Money Diaries: A Summer Week in Austin on a Salary I Pay Myself'
 date: '2020-07-30'
 ---
 
