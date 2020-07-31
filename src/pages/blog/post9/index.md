@@ -7,8 +7,10 @@ Finally.
 
 ![photo](post9photo1.png)
 
-Occupation: Uhhhhh 
+Occupation: Uhhhhh
+
 Industry: uhhhhh
+
 Age: 29.5
 
 Location: Austin
