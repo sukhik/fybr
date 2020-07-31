@@ -1,5 +1,5 @@
 ---
-title: 'Money Diaries: A Week of Late Summer in Austin on a Salary I Pay Myself'
+title: 'Money Diaries: A Summer week in Austin on a Salary I Pay Myself'
 date: '2020-07-30'
 ---
 
@@ -52,7 +52,10 @@ Retirement: I'm opening a Roth IRA this week but I haven't made any contribution
 
 Construction: I'm making a back house on the property. It will cost $1000 per month for the next 4 months. Interior design, furniture and decor not included.
 
+Business Fund: $50 a month going to entrepreneurship and new ventures.
+
 Self-Care + Vacation Fund: I'm starting to put $100 away per month for myself to use whenever I want on whatever.
+
 
 Day One.
 
@@ -64,16 +67,27 @@ Day One.
 
 Noon, 12pm - I woke up at 11 something but I made pourover and started my day a bit after, not glancing at the clock til it was well afternoon. This isn't typical, there are weeks I can't sleep past sunrise but for the last couple days I haven't been able to get up. Last week I had a blow out with my family who upsets me with their politics. It exhausted me. I let myself do what I want now. This whole week, I love on myself, baby myself, listen to myself. I sip (smash) my coffee and get on the computer...I stay on the computer for the rest of the day. According to my man, my cup of coffee costs less than $1 per day anyway...but right now, our coffee is a blend of gifted beans, some from a local roaster mixed with a bag of Starbucks Coffee my boyfriend's dad bought. We usually pay for the beans or at least the cream, but this time, even his mom picked up half-and-half for us at the grocery store last time she went. I drink that coffee, I write and push stuff to all my blogs.
 
-5pm - Two weeks ago, I made use of Digital Wellbeing Beta on my Google Pixel 2 XL, a phone I've had since 2016 but broke a couple days ago. Just the screen. In ten million places. Digital Wellbeing allowed me to set timers on all my apps and basically I don't waste time anymore on my phone on social media or anywhere else really. My phone is disturbing me much less. I break at 5, check the phone, and meet up with my boyfriend, and his mom and sister for dinner. When they're in the country, we do this every day. They leave tomorrow, so who knows how we're going to feed ourselves after that.
+5pm - Two weeks ago, I began making use of Digital Wellbeing on my Google Pixel 2 XL, a phone I've had since 2016 but broke a couple days ago. Just the screen. In ten million places. Digital Wellbeing allowed me to set timers on all my apps and basically I don't waste time anymore on my phone on social media or anywhere else really. My phone is disturbing me much less. I break at 5, check the phone, and meet up with my boyfriend, and his mom and sister for dinner. When they're in the country, we do this every day. They leave tomorrow, so who knows how we're going to feed ourselves after that.
 
 8pm - Practice. See <a href=https://sclub.netlify.app>my training site</a>! I give soccer lessons, so I break again from what I'm doing to meet up with my player who lives down the street. We walk to the park and play soccer for an hour and 30 minutes. I get home before 10.
 
 10:30pm - Sit down to chill for the first time all day.
 
-11:30pm -
+11:30pm - Shower and get in bed. Stay up on my phone for a few hours...reading "Pain Studies" by Lisa Olstein...not really much else.
 
-Daily Total: An estimated $1,000 to replace my phone :(
+3:00am - Fell asleep at last.
+
+Daily Total: An estimated $500-$1,000 to replace my phone :( If I replace the screen ~$250.
 
 
 Day Two.
 
+12:30pm - Powering up. Computer and coffee. I'm a regular, it's the pourover with cream...my Chromebook. The day begins. I spend a couple hours researching business and investment opportunities. I am usually the creative, strategist and visionary behind most of my business activities, but I like working with others and I am trying to work on behalf of a few different people right now. It's stressful when I talk on the phone with my brother til 3pm. I'm experiencing angst so I try to chill for the next couple hours. Pepe's mom and sister come home bringing us sweet yummy cold drinks from an Austin coffee shop, much tastier than our homebrew.
+
+7pm - Training time, meet a different player at the park for an hour and fifteen minutes of soccer practice.
+
+10pm - It's Friday night! I just relax.
+
+Daily Total: $0
+
+Day Three.
