@@ -27,6 +27,7 @@ Pronouns: She/her/hers
 
 
 Monthly Expenses
+
 Rent: I don't pay rent, but I work on the property where I live, where I did a landscape redesign and add value by working on the garden, xeriscaping, cultivating fruit trees and flowers, and developing the property as much as I can. $0
 
 Utilities: I don't pay utilities, but I implement strategies to save on utilities and I'm pretty dedicated to being energy-efficient and conservative. $0
