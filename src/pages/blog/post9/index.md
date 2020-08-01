@@ -77,17 +77,18 @@ Noon, 12pm - I woke up at 11 something but I made pourover and started my day a 
 
 3:00am - Fell asleep at last.
 
-Daily Total: An estimated $500-$1,000 to replace my phone :( If I replace the screen ~$250.
+Daily Total: An estimated $1,000 to replace my phone :( If I just replace the screen ~$250. If I downgrade, $500.
 
 
 Day Two.
 
-12:30pm - Powering up. Computer and coffee. I'm a regular, it's the pourover with cream...my Chromebook. The day begins. I spend a couple hours researching business and investment opportunities. I am usually the creative, strategist and visionary behind most of my business activities, but I like working with others and I am trying to work on behalf of a few different people right now. It's stressful when I talk on the phone with my brother til 3pm. I'm experiencing angst so I try to chill for the next couple hours. Pepe's mom and sister come home bringing us sweet yummy cold drinks from an Austin coffee shop, much tastier than our homebrew.
+12:30pm - Powering up. Computer and coffee. I'm a regular, it's the pourover with cream...my Chromebook. The day begins. I spend a couple hours researching business and investment opportunities. I am the creative behind my business activities. I like working with others and am working now on behalf of a few partners. It's stressful when I'm on the phone til 3pm andmy attention is split. I'm experiencing angst so I try to chill for the next couple hours. Pepe's mom and sister come home bringing sweet yummy drinks from an Austin shop, much tastier than my utilitarian brew.
 
-7pm - Training time, meet a different player at the park for an hour and fifteen minutes of soccer practice.
+6pm - Thunderstorms, I'm supposed to train another player at 7pm but predict our 1 hour and fifteen minutes of soccer practice will get rained out. I spend some time outdoors in my secret garden. I come inside and take the plunge, opening a Roth IRA and investing in index mutual funds. $3000
 
-10pm - It's Friday night! I just relax.
+7:30pm - It's Friday night! I just relax, returning Snapchats from five weeks ago and watching tv.
 
-Daily Total: $0
+Daily Total: $3000
+
 
 Day Three.
