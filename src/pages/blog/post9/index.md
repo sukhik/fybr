@@ -99,8 +99,11 @@ Daily Total: $3000
 
 Day Three.
 
-2pm - Saturday. Peel myself out of bed lol. I look great! My sister brought donuts from a well-known haunt around here. I open my mouth and pour a milky cup of instant coffee down my throat. My grandma and mom are watching Punjabi movies and I'm pretty excited to watch a Hindi film next.
+2pm - Saturday. Peel myself out of bed lol. I look great! My sister brought over donuts from a well-known haunt. I open my mouth and pour a milky cup of instant coffee down my throat. My grandma and mom are watching Punjabi movies and I'm pretty excited to watch a Hindi film next. I check all my mail that comes here and do the necessary recyling, shredding and sorting. I eat some kadhi, which is a delicious Indian dish.
 
-3pm - I check all my mail that comes here.
+11pm - I drank three craft-ish beers earlier from the grocery store. Ate dinner with my family. I brang my cat over and bought him some food, too. We're all chillin. $20
 
-4pm - 
+11:30pm - Hindi Film.
+
+2am - Finally sleep.
+
