@@ -112,11 +112,30 @@ Daily Total: $20
 
 Day Four.
 
-12pm - Cat wakes me up at 7am but I camp out in bed til noon. I do the milky frothy sugary coffee I always do when I'm here. I read til about 5pm and then have dinner: a classic daal, rice and dhai plate, a Punjabi meal but recognized commonly as lentil soup, rice, and yogurt. It's gingery and hot. I'm happy.
+12pm - My cat wakes me up at 7am but I camp til noon. I do the milky frothy sugary coffee I always do when I'm here. I read til about 5pm and then have dinner: a classic daal, rice and dhai plate, a Punjabi meal recognized commonly as lentil soup, rice, and yogurt. It's gingery and hot. I'm happy.
+
+5pm - I start catching up on a course I'm taking towards a Machine Learning certification, it's on freecodecamp. I make another milky coffee to get lit while I work.
+
+8pm - Codeacademy gave me a free Pro membership so I log on and start doing my Python 3 course and NLP. This was made available and awarded to me due to COVID-19. I eat some Godiva chocolates.
+
+12am - I take to all the notebooks I own, defining goals for different lengths of times. I spend some time thinking, and then I start drawing in a sketchbook.
+
+3:15am - I meditate til I fall asleep.
 
 Daily Total: $0
 
 
 Day Five.
 
+Daily Total: $0
 
+
+
+Day Six.
+
+Daily Total: $0
+
+
+Day Seven.
+
+Daily Total: $0
