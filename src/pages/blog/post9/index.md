@@ -92,7 +92,7 @@ Day Two.
 
 1:00am - I read "The Importance of Being Earnest," by Oscar Wilde. I do a little writing and acting. I invent some amazing comedy, come up with amazing ideas for shows, cartoons and films. I'm loving the creativity...I should have recorded the whole event. 
 
-4:00am - I use Headspace when I'm trying to hit the hay. I fall into a dreamy asleep.
+4:00am - When I start trying to hit the hay, I do a 20min Goodnight meditation on Headspace. I fall into a dreamy asleep.
 
 Daily Total: $3000
 
@@ -116,16 +116,24 @@ Day Four.
 
 5pm - I start catching up on a course I'm taking towards a freecodecamp certification. I make another milky coffee to get lit while.
 
-8pm - Codeacademy gave me a free Pro membership so I log on and start doing my Python 3 course and NLP. This was made available and awarded to me due to COVID-19. I eat some Godiva chocolates, I mess around on my phone which hasn't so much as chirped all day, and break for an hour of restorative yoga at 10pm.
+8pm - Codeacademy gave me a free Pro membership due to COVID-19 so I log on and start doing my program. I eat some Godiva chocolates, mess around on my phone which hasn't so much as chirped all day, and break for an hour of restorative yoga at 11pm.
 
-12am - I take to all the notebooks I own, defining goals for different lengths of times. I spend some time thinking, and then I start drawing in a sketchbook.
+12am - In a notebook, I set some goals and define them. I spend some time thinking, and then draw in a sketchbook.
 
-3:15am - I meditate til I fall asleep.
+2:00am - I meditate til I fall asleep.
 
 Daily Total: $0
 
 
 Day Five.
+
+6am - There are a blitz of notifications on my phone I check and have to address. I meditate and move through the morning slowly. I owe some work and correspondence. It's Monday, so I get to it.
+
+11:30am - Milk coffee time. Listening to music. Drawing. 
+
+2:00pm - I try Headspace Move Mode, I really like that. After I have a cup of tea, I'm on the phone, doing computer work til the evening. I break in the middle for half an hour of restorative yoga and at the end for an hour more. Why didn't I do this all my life?
+
+10pm - Dinner
 
 Daily Total: $0
 
