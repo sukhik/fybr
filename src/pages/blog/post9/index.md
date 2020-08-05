@@ -129,21 +129,33 @@ Day Five.
 
 6am - There are a blitz of notifications on my phone I check and have to address. I meditate and move through the morning slowly. I owe some work and correspondence. It's Monday, so I get to it.
 
-11:30am - Milk coffee time. Listening to music. Drawing. 
+11:30am - Milky coffee time. Listening to music. Drawing. 
 
 2:00pm - I try Headspace Move Mode, I really like that. After I have a cup of tea, I'm on the phone, doing computer work til the evening. I break in the middle for half an hour of restorative yoga and at the end for an hour more. Why didn't I do this all my life?
 
-10pm - Dinner
+10pm - Dinner, and stay up til I fall asleep.
 
 Daily Total: $0
 
 
-
 Day Six.
+
+7am - Cat keeps me awake. 
+
+2pm - I put my book down I'm ready to meditate. I end up sleeping til it's dark and stay up til 4am doing stuff.
 
 Daily Total: $0
 
 
 Day Seven.
 
+11am - I wake up, meditate, my friend calls and we spend the afternoon together on the phone. After, I bust into Codeacademy. I'm having second thoughts on the interactivity of delivery...don't have the attention span...visit the documentation sites for everything instead. I think I learn much more by reading than from watching or interacting.
+
+3pm - Restore with yoga. My body needs me.
+
+4:00pm - Sister comes over and we're all kicking it.
+
 Daily Total: $0
+
+
+Weekly Total:$4020.00
